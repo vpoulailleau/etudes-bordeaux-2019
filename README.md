@@ -22,6 +22,8 @@ Vous devez respecter les contraintes suivantes :
 ### Dans l'école
 
 ### En ville
+* 21 septembre Apero DJ Set Grizzly Beer 
+
 
 Place de la victoire, beaucoup de bars autours dont le "barberousse"
 La Dame: 1 Quai Armand Lalande, Bassins à flot n°1, 33300 Bordeaux
@@ -34,5 +36,9 @@ Le Cochon Volant - 22 place des capucins - 33800 Bordeaux
 
 * Matmut atlantique : (https://www.matmut-atlantique.com)
 * Palais des sports : (https://www.bordeaux-tourisme.com/offre/fiche/palais-des-sports/LOIAQU033V5046IR)
+* Tennis Badminton Meriadeck : 30 rue Claude Bonnier (réservation de terrain sur le sie web et location de matériel sur place)
 
+
+#### Je suis pas d'ici
+* ducoup je cherche des bons plans je compte sur vous merci
 
