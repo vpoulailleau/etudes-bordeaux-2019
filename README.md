@@ -34,13 +34,13 @@ entrée offerte au théatro 1 fois par mois vestiaire compris. :+1:
 * l'Iboat: Bassin à Flot n°1, Cours Henri Brunet, 33300 Bordeaux
 * Miroir d'eau: arrêt de tram "place de la bourse"
 * The base club: 287 Boulevard Alfred Daney, 33300 Bordeaux
-
+* Le Cochon Volant - 22 place des capucins - 33800 Bordeaux
 
 #### Les sports 
 
 * Matmut atlantique : (https://www.matmut-atlantique.com)
 * Palais des sports : (https://www.bordeaux-tourisme.com/offre/fiche/palais-des-sports/LOIAQU033V5046IR)
-
+* Tennis Badminton Meriadeck : 30 rue Claude Bonnier (réservation de terrain sur le site web et location du matériel sur place : raquette(s) volant(s))
 
 #### Je suis pas d'ici
 * ducoup je cherche des bons plans je compte sur vous merci
