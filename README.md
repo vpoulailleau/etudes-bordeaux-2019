@@ -22,8 +22,4 @@ Vous devez respecter les contraintes suivantes :
 ### Dans l'école
 
 ### En ville
-
-#### Les sports 
-
-* Matmut atlantique : (https://www.matmut-atlantique.com)
-* Palais des sports : (https://www.bordeaux-tourisme.com/offre/fiche/palais-des-sports/LOIAQU033V5046IR)
+Le Cochon Volant - 22 place des capucins - 33800 Bordeaux
