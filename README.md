@@ -21,6 +21,9 @@ Vous devez respecter les contraintes suivantes :
 
 ### Dans l'école
 
+
+la table de ping pong
+
 ### En ville
 
 *Avec l'application mobile Yudrink* :
