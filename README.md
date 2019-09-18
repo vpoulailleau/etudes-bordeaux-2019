@@ -22,9 +22,12 @@ Vous devez respecter les contraintes suivantes :
 ### Dans l'école
 
 ### En ville
+* 21 septembre Apero DJ Set Grizzly Beer 
 
 #### Les sports 
 
 * Matmut atlantique : (https://www.matmut-atlantique.com)
 * Palais des sports : (https://www.bordeaux-tourisme.com/offre/fiche/palais-des-sports/LOIAQU033V5046IR)
 * Tennis Badminton Meriadeck : 30 rue Claude Bonnier (avec réservation de terrain sur le site web et une location de matériel sur place)
+
+
