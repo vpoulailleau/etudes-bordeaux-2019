@@ -40,7 +40,7 @@ entrée offerte au théatro 1 fois par mois vestiaire compris. :+1:
 
 * Matmut atlantique : (https://www.matmut-atlantique.com)
 * Palais des sports : (https://www.bordeaux-tourisme.com/offre/fiche/palais-des-sports/LOIAQU033V5046IR)
-
+* Patinoire Mériadeck : (https://www.hockey-boxers-de-bordeaux.fr/)
 
 #### Je suis pas d'ici
 * ducoup je cherche des bons plans je compte sur vous merci
