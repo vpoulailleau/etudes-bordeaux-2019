@@ -22,6 +22,10 @@ Vous devez respecter les contraintes suivantes :
 ### Dans l'école
 
 ### En ville
+
+*Avec l'application mobile Yudrink* :
+entrée offerte au théatro 1 fois par mois vestiaire compris. :+1:
+
 * 21 septembre Apero DJ Set Grizzly Beer 
 
 
@@ -40,4 +44,5 @@ The base club: 287 Boulevard Alfred Daney, 33300 Bordeaux
 
 #### Je suis pas d'ici
 * ducoup je cherche des bons plans je compte sur vous merci
+
 
