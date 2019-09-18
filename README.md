@@ -22,3 +22,6 @@ Vous devez respecter les contraintes suivantes :
 ### Dans l'école
 
 ### En ville
+
+#### Je suis pas d'ici
+* ducoup je cherche des bons plans je compte sur vous merci
