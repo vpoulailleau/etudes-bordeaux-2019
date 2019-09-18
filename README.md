@@ -21,6 +21,8 @@ Vous devez respecter les contraintes suivantes :
 
 ### Dans l'école
 
+* caféteria 
+
 ### En ville
 
 *Avec l'application mobile Yudrink* :
