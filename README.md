@@ -22,4 +22,17 @@ Vous devez respecter les contraintes suivantes :
 ### Dans l'école
 
 ### En ville
+
+Place de la victoire, beaucoup de bars autours dont le "barberousse"
+La Dame: 1 Quai Armand Lalande, Bassins à flot n°1, 33300 Bordeaux
+l'Iboat: Bassin à Flot n°1, Cours Henri Brunet, 33300 Bordeaux
+Miroir d'eau: arrêt de tram "place de la bourse"
+The base club: 287 Boulevard Alfred Daney, 33300 Bordeaux
 Le Cochon Volant - 22 place des capucins - 33800 Bordeaux
+
+#### Les sports 
+
+* Matmut atlantique : (https://www.matmut-atlantique.com)
+* Palais des sports : (https://www.bordeaux-tourisme.com/offre/fiche/palais-des-sports/LOIAQU033V5046IR)
+
+
